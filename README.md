@@ -1,0 +1,1 @@
+# teori_07_kasus2
